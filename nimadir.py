@@ -1,13 +1,8 @@
 nafjfhsjr
-
-RuntimeWarningwer
+eqweqw
+reeqw
 whilew
-KeyErrorwer
-EncodingWarningr
-EncodingWarningew
-reversedewr
 whiler
 EncodingWarningrew
-reversedwe
 reversedwr
 we
