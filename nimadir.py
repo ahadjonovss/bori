@@ -1,0 +1,13 @@
+nafjfhsjr
+
+RuntimeWarningwer
+whilew
+KeyErrorwer
+EncodingWarningr
+EncodingWarningew
+reversedewr
+whiler
+EncodingWarningrew
+reversedwe
+reversedwr
+we
